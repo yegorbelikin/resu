@@ -13,3 +13,4 @@ yegor.belikin@gmail.com
 
 *Готов к командировкам*
 
+![Фото] (C:\Users\Lenovo\Desktop\4139.jpg)
