@@ -13,4 +13,4 @@ yegor.belikin@gmail.com
 
 *Готов к командировкам*
 
-![Фото](https://vk.com/yegor.belikin?z=photo3611864_457239326%2Falbum3611864_0%2Frev)
+![Фото](https://sun9-7.userapi.com/impg/9-Jv2wxLhRySsqY1VIj4h9OopKBT_aVPSl7RRA/yEr06FCYtLU.jpg?size=709x879&quality=95&sign=4c84825aef84ebcd075123815e6a8aa5&type=album)
