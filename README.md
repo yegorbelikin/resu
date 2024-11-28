@@ -13,4 +13,4 @@ yegor.belikin@gmail.com
 
 *Готов к командировкам*
 
-![Фото] (C:\Users\Lenovo\Desktop\4139.jpg)
+![Фото](https://vk.com/yegor.belikin?z=photo3611864_457239326%2Falbum3611864_0%2Frev)
